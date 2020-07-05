@@ -1,6 +1,6 @@
 # Як лікувати болі в спині, грижі та протрузії. Метод Гамуги
 
-**1: Читаємо статті:**
+**1. Читаємо статті:**
 - [Чому грижі міжхребцевого диску поперекового відділу хребта у більшості випадків не треба оперувати: пояснює нейрохірург](https://moz.gov.ua/article/health/chomu-grizhi-mizhhrebcevogo-disku-u-bilshosti-vipadkiv-ne-treba-operuvati-pojasnjue-nejrohirurg)
 - [Що таке остеохондроз насправді і що робити, якщо болить спина](https://moz.gov.ua/article/health/scho-take-osteohondroz-naspravdi-i-scho-robiti-jakscho-bolit-spina)
 - [Міфи про біль у спині](https://moz.gov.ua/article/health/mifi-pro-bil-u-spini)
