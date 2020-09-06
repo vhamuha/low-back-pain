@@ -10,8 +10,9 @@
 - [Як вберегти спину від болю: поради від нейрохірурга](https://moz.gov.ua/article/health/jak-vberegti-spinu-vid-bolju-poradi-vid-nejrohirurga)
 - [Які вправи не варто робити, коли болить спина: розповідає нейрохірург](https://moz.gov.ua/article/health/jaki-vpravi-ne-varto-robiti-koli-bolit-spina-rozpovidae-nejrohirurg)
 - [Як подолати біль у спині: вправи для зміцнення м'язів хребта](https://moz.gov.ua/article/health/jak-podolati-bil-u-spini-vpravi-dlja-zmicnennja-mjaziv-hrebta)
+- [Про що свідчать дегенеративні зміни в хребті і коли справді треба призначати МРТ](https://moz.gov.ua/article/health/pro-scho-svidchat-degenerativni-zmini-v-hrebti%C2%A0i-koli-spravdi-treba-priznachati-mrt)
 
-На випадок недоступності статей - [Збережені тут](https://www.dropbox.com/s/updpueivaauh89g/Low-Back-Pain-Articles.zip?dl=0)
+На випадок недоступності статей частково [збережені тут](https://www.dropbox.com/s/updpueivaauh89g/Low-Back-Pain-Articles.zip?dl=0)
 
 **2. Відео:**
 - [Вадим Ілляшенко про біль у спині](https://www.youtube.com/watch?v=yJ4Zv5Mulh8)
